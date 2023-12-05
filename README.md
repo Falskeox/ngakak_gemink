@@ -1,2 +1,3 @@
 # ngakak_gemink
-ngakak cik
+aokwowkaokokaokaokwk
+
